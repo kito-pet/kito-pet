@@ -6,17 +6,9 @@ Kito, evcil dostlarımızın sağlığını merkezine alan yeni nesil bir mama m
 
 ## 🌱 Kito’nun Felsefesi
 
-- **Doğal içerik**  
-  Mamaların içinde yalnızca güvenilir, temiz ve işlenmemiş hammaddeler bulunur.
+Çocuklarımızın hayatlarına dokunmanın, onların kaliteli bir hayat yaşamalarını sağlamanın birçok yolu var. Onları eğitmek, sağlıklı beslemek, tecrübelerinizi paylaşmak bunlardan bazıları. Patili yavrularımızı düşündüğümüzde ise onların hayatlarına dokunmanın en önemli yolu onları sağlıklı beslemek. Kito da evcil dostlarımız sağlıklı beslenebilsin diye var. Evcil dostlarımızın beslenmesi sürecinde mamalarının içeriği, içeriklerin kalitesi, reçeteleri konusunda derdi olan Alper Çağdaş tarafından kuruldu. Birlikte büyüdüğü köpeklerini, sahiplendiği dört kediyi daha sağlıklı nasıl beslerim, ömürlerini nasıl uzatır, yaşam kalitelerini nasıl artırırım diye düşünen Alper Çağdaş tüm bu problemleri çözebilmek adına Kito’yu hayata geçirdi.
 
-- **Katkısız ve koruyucusuz üretim**  
-  Özellikle Kito Fresh serisi tamamen katkısızdır.
-
-- **Bilimsel formulasyonlar**  
-  Mamalar, veteriner beslenme uzmanlarıyla birlikte geliştirilir.
-
-- **Taze et kullanımı**  
-  Hem Kito Fresh hem de kuru mamalarda taze et önceliklidir. Üretimde kullanılan sistem, taze etin besin değerini kaybetmeden mamaya işlenmesini sağlar.
+Bir mamanın en önemli ham maddesi et. Etin kalitesi mamanın kalitesinin temel belirleyicilerinden biri. Kito ilk olarak mamanın içine giren etin kaliteli olması için kendi çiftliklerinden(Karkas Çiftliği) aldığı antibiyotiksiz, GDO’suz etleri ürettiği mamalarda kullanmaya başladı. Diğer taraftan da mamaya giren diğer tüm içeriklerin kaliteli olması adına kontroller geliştirdi.
 
 ---
 
@@ -32,10 +24,8 @@ Evcil hayvanların doğal beslenmesine en yakın form. İnsan tüketimine uygun 
 - Yumuşak formu sayesinde kolay sindirim  
 
 **Olası içerik örnekleri:**
-- Dana eti, dana kalp, dana ciğer  
-- Havuç, balkabağı, patates  
-- Bezelye, mercimek  
-- Keten tohumu, yumurta, elma  
+
+Kito’nun en önemli ürünü Kito Fresh (taze mama), tamamen insan standardında et ve malzemeler kullanılarak, İstanbul Üniversitesi tarafından geliştirilmiş özel reçetelere göre Dardanel’in steril tesislerinde üretiliyor. Kito Fresh bir kedi ya da köpeğin tüm beslenme ihtiyaçlarını karşılayabilecek şekilde formülize edilmiş bir ürün. Hiçbir katkı maddesi içermiyor. Kito Fresh’i anlamak için en kolay yol içindekileri okumak ve tadına bakmak. Kito ekibinin mamayı yerkenki videolarını görürseniz şaşırmayın:) Örneğin Dana Etli Kito Fresh taze mamanın içeriği şöyle: “Dana eti, dana kalp, dana ciğer, pirinç, patates, balkabağı, havuç, yumurta, bezelye, kırmızı mercimek, elma, sıvı bitkisel yağ, yumurta kabuğu, öğütülmüş keten tohumu, kuru biberiye.” Et oranı %40 ve başka hiçbir katkı, koruyucu içermiyor.
 
 ---
 
